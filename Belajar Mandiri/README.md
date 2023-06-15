@@ -1,1 +1,1 @@
-
+# Hanya Mencoba lebih baik
